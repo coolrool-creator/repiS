@@ -9,3 +9,5 @@ rus
 fre
 chi
 rio
+noy
+fira pull
