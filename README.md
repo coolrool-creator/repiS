@@ -12,3 +12,5 @@ rio
 noy
 fira pull
 kind of monster
+sonic
+tanapod
