@@ -16,3 +16,5 @@ sonic
 tanapod
 cryptocurrence prices
 charts
+kompot
+lada
