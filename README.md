@@ -18,3 +18,5 @@ cryptocurrence prices
 charts
 kompot
 lada
+delectron
+global66
