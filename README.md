@@ -24,3 +24,5 @@ global66
 Range Runs
 Ferris Sno
 Northern Edge
+Nomad Wind Chill
+Over Cast
