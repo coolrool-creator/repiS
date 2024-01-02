@@ -26,3 +26,5 @@ Ferris Sno
 Northern Edge
 Nomad Wind Chill
 Over Cast
+down snow board
+solar active
