@@ -2,9 +2,9 @@ plz# repiS
 подписка
 show must go on
 have
-rest
+rest ferra pb
 next week
-eng
+eng-крюнек-шея
 rus
 fre
 chi
