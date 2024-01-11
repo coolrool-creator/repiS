@@ -1,7 +1,7 @@
 plz# repiS
 подписка
 show must go on
-have
+have ichigo zoro koncvest
 rest ferra pb
 next week
 eng-крюнек-шея
@@ -12,7 +12,7 @@ rio
 noy
 fira pull
 kind of monster
-sonic
+sonic battletods 
 tanapod
 cryptocurrence prices
 charts
