@@ -1,12 +1,12 @@
 plz# repiS
-подписка
+move with me element solar
 show must go on
 have ichigo zoro koncvest
 rest ferra pb
 next week
 eng-крюнек-шея
-rus
-fre
+serotonin dress
+leave no treces
 chi
 rio
 noy
