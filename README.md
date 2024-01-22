@@ -8,14 +8,14 @@ eng-крюнек-шея
 serotonin dress
 leave no treces
 chi
-rio
+rio nickol doing beauty
 noy
 fira pull
 kind of monster
 sonic battletods 
 tanapod
 cryptocurrence prices
-charts
+charts personal data
 kompot
 lada
 delectron
