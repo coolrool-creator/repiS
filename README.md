@@ -3,13 +3,13 @@ move with me element solar
 show must go on
 have ichigo zoro koncvest
 rest ferra pb
-next week
+next week 
 eng-крюнек-шея
 serotonin dress
 leave no treces
-chi
+chi ozzi pesto
 rio nickol doing beauty
-noy
+noy silver rox
 fira pull
 kind of monster
 sonic battletods 
@@ -17,7 +17,7 @@ tanapod
 cryptocurrence prices
 charts personal data
 kompot
-lada
+lada jupiter
 delectron
 global66
 4-8-15-16-23-42
