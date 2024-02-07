@@ -16,7 +16,7 @@ sonic battletods
 tanapod
 cryptocurrence prices
 charts personal data
-kompot
+tns energo
 lada jupiter
 delectron
 global66
@@ -28,3 +28,6 @@ Nomad Wind Chill
 Over Cast
 down snow board
 solar active
+4B02-03-00006-L-002P RU000A106DV1
+4B02-01-00102-L-001P RU000A106CM2
+4B02-02-00012-L-001P RU000A106UL6
