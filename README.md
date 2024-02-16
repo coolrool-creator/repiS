@@ -2,7 +2,7 @@ plz# repiS
 move with me element solar
 show must go on
 have ichigo zoro koncvest
-rest ferra pb
+rest ferra pb dell
 next week 
 eng-крюнек-шея
 serotonin dress
@@ -10,8 +10,8 @@ leave no treces
 chi ozzi pesto
 rio nickol doing beauty
 noy silver rox
-fira pull
-kind of monster
+fira pull collection
+kind of monster sapiens
 sonic battletods 
 tanapod
 cryptocurrence prices
