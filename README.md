@@ -1,4 +1,4 @@
-plz# repiS
+plz# repiS well3
 move with me element solar
 show must go on
 have ichigo zoro koncvest
@@ -7,12 +7,12 @@ next week
 eng-крюнек-шея
 serotonin dress
 leave no treces
-chi ozzi pesto
+chi ozzi pesto yogapetz
 rio nickol doing beauty
 noy silver rox
 fira pull collection
 kind of monster sapiens
-sonic battletods 
+sonic battletods comixzone combat pie
 tanapod
 cryptocurrence prices
 charts personal data
